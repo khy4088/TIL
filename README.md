@@ -1,1 +1,7 @@
 # TIL
+
+TODAY 
+
+I 
+
+LEARNED
